@@ -1,3 +1,3 @@
 Lista Avaliativa - 002
 
-Matheus Vinycius Vieira Batista - Yan Vargas Vasconcelos - Kennedy Rodrigo Torres Gonçalves - Filipe Mesquita Castelo Branco
+Matheus Vinycius Vieira Batista - Yan Vargas Vasconcelos - Filipe Mesquita Castelo Branco
